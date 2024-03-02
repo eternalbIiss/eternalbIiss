@@ -9,7 +9,7 @@ $$**SPYㅤㅤINㅤㅤ𝐑𝐄𝐃 .ᐟ**$$
 <img src="https://github.com/rhinestonecross/README/assets/132586597/215e0a5f-8967-4220-8ef5-500a1d5d890f"/>
 </p>
 
-$$**shyㅤorㅤreefㅤ──ㅤshe/herㅤ──ㅤcanadian**$$
+$$**vialㅤorㅤreefㅤ──ㅤhe/herㅤ──ㅤsixteen**$$
 
 ㅤ
 ㅤ
