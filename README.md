@@ -1,33 +1,16 @@
 <p align="center">────── · · ㅤ♱ ㅤ· · ──────
 </p>
 
-$$**SPYㅤㅤINㅤㅤ𝐑𝐄𝐃 .ᐟ**$$
-
-ㅤ
-
-<p align="center">
-<img src="https://github.com/rhinestonecross/README/assets/132586597/215e0a5f-8967-4220-8ef5-500a1d5d890f"/>
-</p>
-
-$$**vialㅤorㅤreefㅤ──ㅤhe/herㅤ──ㅤsixteen**$$
-
-ㅤ
-ㅤ
-
-$$**whisperㅤ2ㅤinteractㅤ;ㅤi'mㅤconstantlyㅤafk**$$
-
-
-$$feelㅤfreeㅤtoㅤc+hㅤifㅤi'mㅤaloneㅤ,ㅤnotㅤwhenㅤi'mㅤwㅤfriends$$
-
-
-ㅤ
-
-<p align="center">
-<img src="https://github.com/rhinestonecross/README/assets/132586597/f2fe8592-9638-44c1-a9e5-ea529efb6cfc"/>
-</p>
-
-ㅤ
-
 $$HOWㅤㅤDIDㅤㅤYOUㅤㅤCOMEㅤㅤTOㅤㅤBEㅤㅤSOㅤㅤ𝐁𝐋𝐄𝐒𝐒𝐄𝐃 .ᐣ$$
+
+<p align="center">
+<img src="https://github.com/user-attachments/assets/5077c068-5c93-4352-8634-e5480c80e04f"/>
+</p>
+
+$$**nicoㅤㅤ─ㅤㅤhe/himㅤㅤ─ㅤㅤsixteen**$$
+
+$$whisperㅤㅤ2ㅤㅤinteractㅤㅤㅤㅤㅤㅤreadㅤㅤstrwpgㅤㅤ.$$
+
 <p align="center">────── · · ㅤ♱ ㅤ· · ──────
 </p>
+
