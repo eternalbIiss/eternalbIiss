@@ -4,7 +4,7 @@
 $$HOWㅤㅤDIDㅤㅤYOUㅤㅤCOMEㅤㅤTOㅤㅤBEㅤㅤSOㅤㅤ𝐁𝐋𝐄𝐒𝐒𝐄𝐃 .ᐣ$$
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/5077c068-5c93-4352-8634-e5480c80e04f"/>
+<img src="https://github.com/user-attachments/assets/41a01312-889c-44ee-a563-847a2e2c213a"/>
 </p>
 
 $$**nicoㅤㅤ─ㅤㅤhe/himㅤㅤ─ㅤㅤsixteen**$$
@@ -14,4 +14,3 @@ $$whisperㅤㅤ2ㅤㅤinteractㅤㅤㅤㅤㅤㅤreadㅤㅤstrwpgㅤㅤ.$$
 
 <p align="center">────── · · ㅤ♱ ㅤ· · ──────
 </p>
-
