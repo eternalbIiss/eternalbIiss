@@ -1,13 +1,8 @@
-<p align="center">────── · · ㅤ♱ ㅤ· · ──────
-</p>
-
-$$HOWㅤㅤDIDㅤㅤYOUㅤㅤCOMEㅤㅤTOㅤㅤBEㅤㅤSOㅤㅤ𝐁𝐋𝐄𝐒𝐒𝐄𝐃 .ᐣ$$
-
 <p align="center">
-<img src="https://github.com/user-attachments/assets/41a01312-889c-44ee-a563-847a2e2c213a"/>
+<img src="https://github.com/user-attachments/assets/e61e9ff1-a60f-4b59-8f7f-efa39b401ca6"/>
 </p>
 
-$$**nicoㅤㅤ─ㅤㅤhe/himㅤㅤ─ㅤㅤsixteen**$$
+$$**jishiㅤㅤ─ㅤㅤshe/herㅤㅤ─ㅤㅤsixteen**$$
 
 $$whisperㅤㅤ2ㅤㅤinteractㅤㅤㅤㅤㅤㅤreadㅤㅤstrwpgㅤㅤ.$$
 
