@@ -1,6 +1,7 @@
 <p align="center">
-<img src="https://github.com/user-attachments/assets/e61e9ff1-a60f-4b59-8f7f-efa39b401ca6"/>
+<img src="https://github.com/user-attachments/assets/d7ce1058-3b16-42fa-b2be-b7fd60809220"/>
 </p>
+
 
 $$**jishiㅤㅤ─ㅤㅤshe/herㅤㅤ─ㅤㅤsixteen**$$
 
