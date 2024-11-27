@@ -1,12 +1,23 @@
-<p align="center">
-<img src="https://github.com/user-attachments/assets/d7ce1058-3b16-42fa-b2be-b7fd60809220"/>
-</p>
+<img src="https://github.com/user-attachments/assets/edf334d9-31b5-432c-a815-84624ca664eb"/>
 
- 
-$$**jishiㅤㅤ─ㅤㅤshe/herㅤㅤ─ㅤㅤsixteen**$$
+hello party people...!!
 
-$$whisperㅤㅤ2ㅤㅤinteractㅤㅤㅤㅤㅤㅤreadㅤㅤstrwpgㅤㅤ.$$
+ㅤ
+ummm heres some info or smth..... idfk how ts works!!!!!
+
+ㅤ
 
 
-<p align="center">────── · · ㅤ♱ ㅤ· · ──────
-</p>
+u can call me shy, shyanne, or shyshy.. idgaf..
+
+she/her... im 16.. im a junior in highschool nd i have a job..
+
+my fav character is sentinel from tfo.. so sorry... i loove irredeemable characters
+
+i looove transformers, star wars, arcane, and sonic...
+
+i have middle school boy humor. i WILL say sigma and hawk tuah idgaf
+
+literally js ask me anything u wanna know.. i'll answer..!!
+
+
