@@ -8,14 +8,14 @@ heres info on me or smth... like if u wanna know more js ask!!
 ㅤ
 
 
-u can call me shy, shyanne, or shyshy.ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi love transformers, star wars, arcane, and sonic.
+⟡ u can call me shy, shyanne, or shyshy.ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⟡ i love transformers, star wars, arcane, and sonic.
 
-she/her, 16, yada yada yada idc what u call meㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi have a lot of favs, but i'm rlly liking sentinel rn !!
+she/her, 16, yada yada yada idc what u call meㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi have a lot of favs, but i'm rlly liking sentinel rn !!
 
 ㅤ
 
-i have middle school boy humor. i WILL say sigma,ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi have a job.. and a life.. so i'm not online all the time...
+⟡ i have middle school boy humor. i WILL say sigma,ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⟡ i have a job.. and a life.. so i'm not online all the time...
 
-skibidi, etc etc. like i have freaky brainrotㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤif you expect me to be online constantly i WILL beat you
+skibidi, etc etc. like i have freaky brainrotㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤif you expect me to be online constantly i WILL beat you
 
 ㅤ
