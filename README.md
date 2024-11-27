@@ -1,23 +1,29 @@
 <img src="https://github.com/user-attachments/assets/edf334d9-31b5-432c-a815-84624ca664eb"/>
 
-hello party people...!!
+hello freaky ass ponytowners
 
 ㅤ
-ummm heres some info or smth..... idfk how ts works!!!!!
+heres info on me or smth... like if u wanna know more js ask!!
 
 ㅤ
 
 
-u can call me shy, shyanne, or shyshy.. idgaf..
+u can call me shy, shyanne, or shyshy.
 
-she/her... im 16.. im a junior in highschool nd i have a job..
+she/her, 16, yada yada yada idc what u call me
 
-my fav character is sentinel from tfo.. so sorry... i loove irredeemable characters
+ㅤ
 
-i looove transformers, star wars, arcane, and sonic...
+i love transformers, star wars, arcane, and sonic.
 
-i have middle school boy humor. i WILL say sigma and hawk tuah idgaf
+i have a lot of favs, but i'm rlly liking sentinel rn !!
 
-literally js ask me anything u wanna know.. i'll answer..!!
+i love irredeemable fatasses
+
+ㅤ
+
+i have middle school boy humor. i WILL say sigma,
+
+skibidi, etc etc. like i have freaky brainrot
 
 
