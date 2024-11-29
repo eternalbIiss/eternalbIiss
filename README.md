@@ -9,7 +9,7 @@
 
  <p align="center"> 
 
-##### [rentry](https://rentry.co/withphilosophy) ‎ ‎‎  ‎‎ ‎‎ [strawpage](https://withphilosophy.straw.page/) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://withphilosophy.atabook.org) ‎ ‎‎  ‎‎ ‎‎  
+##### [rentry](https://rentry.co/soab) ‎ ‎‎  ‎‎ ‎‎ [strawpage](https://withphilosophy.straw.page/) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://soab.atabook.org) ‎ ‎‎  ‎‎ ‎‎  
  <p align="center">
 <sup></sup>she grabbin' my bandana while i hit , cuz i'm a soldier
 
