@@ -1,6 +1,6 @@
  
   
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=soabw&label=stars&color=33a6cc&style=plastic&base=20000" />
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=soabw&label=decepticons&color=c90a0a&style=plastic&base=20000" />
   </div>
 
 <div align="center"> 
