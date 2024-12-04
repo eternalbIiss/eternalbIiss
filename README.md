@@ -1,6 +1,6 @@
  
   
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=soabw&label=decepticons&color=c90a0a&style=plastic&base=20000" />
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=soabw&label=decepticons&color=95cccf&style=plastic&base=20000" />
   </div>
 
 <div align="center"> 
@@ -9,7 +9,7 @@
 
  <p align="center"> 
 
-##### [rentry](https://rentry.co/soab) ‎ ‎‎  ‎‎ ‎‎ [rentry 2](https://rentry.co/chocostorm) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://soab.atabook.org) ‎ ‎‎  ‎‎ ‎‎  
+##### [directory rentry](https://rentry.co/ahsokasdual) ‎ ‎‎  ‎‎ ‎‎ [main rentry](https://rentry.co/fulcrums) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://soab.atabook.org) ‎ ‎‎  ‎‎ ‎‎  
  <p align="center">
 <sup></sup>she grabbin' my bandana while i hit , cuz i'm a soldier
 
