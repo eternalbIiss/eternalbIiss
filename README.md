@@ -1,6 +1,6 @@
  
   
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=soulequine&label=souls&color=b1ae88&style=plastic&base=20000" />
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=soulequine&label=souls&color=000000&style=plastic&base=20000" />
   </div>
 
 <div align="center"> 
@@ -11,7 +11,7 @@
 
 ##### [main rentry](https://rentry.co/soulequine) ‎ ‎‎  ‎‎ ‎‎ [second rentry](https://rentry.co/fulcrums) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://soulequine.atabook.org) ‎ ‎‎  ‎‎ ‎‎  
  <p align="center">
-<sup></sup>she grabbin' my bandana while i hit , cuz i'm a soldier
+<sup></sup>ohh i'm such a whooore, but i'm not your ho
 
 ***
 <div align="center"> 
