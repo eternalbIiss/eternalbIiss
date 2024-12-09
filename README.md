@@ -9,7 +9,7 @@
 
  <p align="center"> 
 
-##### [main rentry](https://rentry.co/soulequine) ‎ ‎‎  ‎‎ ‎‎ [second rentry](https://rentry.co/fulcrums) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://soulequine.atabook.org) ‎ ‎‎  ‎‎ ‎‎  
+##### [main rentry](https://rentry.co/sexxsymbols) ‎ ‎‎  ‎‎ ‎‎ [second rentry](https://rentry.co/fulcrums) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://soulequine.atabook.org) ‎ ‎‎  ‎‎ ‎‎  
  <p align="center">
 <sup></sup>ohh i'm such a whooore, but i'm not your ho
 
