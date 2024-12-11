@@ -11,7 +11,7 @@
 
 ##### [main rentry](https://rentry.co/gundecay) ‎ ‎‎  ‎‎ ‎‎ [pinterest](https://www.pinterest.com/decaysymbol) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://sexsymbol.atabook.org) ‎ ‎‎  ‎‎ ‎‎  
  <p align="center">
-<sup></sup>ohh i'm such a whooore, but i'm not your ho
+<sup></sup>laaaaast christmas i gave u my heart
 
 ***
 <div align="center"> 
