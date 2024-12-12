@@ -9,9 +9,9 @@
 
  <p align="center"> 
 
-##### [main rentry](https://rentry.co/gundecay) ‎ ‎‎  ‎‎ ‎‎ [pinterest](https://www.pinterest.com/decaysymbol) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://sexsymbol.atabook.org) ‎ ‎‎  ‎‎ ‎‎  
+##### [main rentry](https://rentry.co/snowismic) ‎ ‎‎  ‎‎ ‎‎ [pinterest](https://www.pinterest.com/decaysymbol) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://sexsymbol.atabook.org) ‎ ‎‎  ‎‎ ‎‎  
  <p align="center">
-<sup></sup>laaaaast christmas i gave u my heart
+<sup></sup>idgaf, shut the fuck up !!!! get on ur knees nd grease my feet😛
 
 ***
 <div align="center"> 
