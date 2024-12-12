@@ -13,11 +13,4 @@
  <p align="center">
 <sup></sup>idgaf, shut the fuck up !!!! get on ur knees nd grease my feet😛
 
-***
-<div align="center"> 
-
-##### [@nicholas](https://github.com/hkittypastries) twinn
-<p align="center"> <img src="https://github.com/user-attachments/assets/aff5b334-fd1f-4440-8827-6d694fcdd73f" > </p>  
-<p align="center"> <img src="https://github.com/user-attachments/assets/45eae7b4-d5de-4e2f-8916-17a8069a7974" > </p>  
-
 
