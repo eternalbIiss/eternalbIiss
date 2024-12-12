@@ -11,6 +11,6 @@
 
 ##### [main rentry](https://rentry.co/snowismic) ‎ ‎‎  ‎‎ ‎‎ [sign tree](https://colormytree.me/2024/01JEWJDF7G7GD3X0Z1RGPCZD4D) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://sexsymbol.atabook.org) ‎ ‎‎  ‎‎ ‎‎  
  <p align="center">
-<sup></sup>idgaf, shut the fuck up !!!! get on ur knees nd grease my feet😛
+<sup></sup>you're my favorite crayon in the box 
 
 
