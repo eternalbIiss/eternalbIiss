@@ -1,6 +1,6 @@
  
   
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=soulequine&label=souls&color=ffb0c2&style=plastic&base=20000" />
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=soulequine&label=souls&color=1a232c&style=plastic&base=20000" />
   </div>
 
 <div align="center"> 
