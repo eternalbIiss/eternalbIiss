@@ -1,6 +1,6 @@
  
   
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=soulequine&label=souls&color=1a232c&style=plastic&base=20000" />
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=soulequine&label=snipers&color=1a232c&style=plastic&base=20000" />
   </div>
 
 <div align="center"> 
@@ -9,6 +9,9 @@
 
  <p align="center"> 
 
-##### [main rentry](https://rentry.co/picniclace) ‎ ‎‎  ‎‎ ‎‎ [sign tree](https://colormytree.me/2024/01JEWJDF7G7GD3X0Z1RGPCZD4D) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://sexsymbol.atabook.org) ‎ ‎‎  ‎‎ ‎‎  
+##### [main rentry](https://rentry.co/lacesniper) ‎ ‎‎  ‎‎ ‎‎ [sign tree](https://colormytree.me/2024/01JEWJDF7G7GD3X0Z1RGPCZD4D) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://sexsymbol.atabook.org) ‎ ‎‎  ‎‎ ‎‎  
  <p align="center">
-you're my favorite crayon in the box <img src="https://github.com/user-attachments/assets/64c8aed1-6789-47af-ba62-991b243257d3" > </p> 
+you're counting the times you've thought i've been drowning. </p> 
+
+***
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31iaxwlbrvkrqjc3kowskrnxfiqi&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
