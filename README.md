@@ -7,7 +7,7 @@
 
  <p align="center"> 
 
-##### [rentry](https://rentry.co/methodological) ‎‎ ‎‎  [sign tree](https://colormytree.me/2024/01JEWJDF7G7GD3X0Z1RGPCZD4D) ‎‎ ‎‎  [atabook](https://mischaracterization.atabook.org)
+##### [rentry](https://rentry.co/methodological) ‎‎ ‎‎  [atabook](https://mischaracterization.atabook.org)
  <p align="center">
 drinking and ponytowning </p> 
 
