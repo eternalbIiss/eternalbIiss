@@ -7,7 +7,7 @@
 
  <p align="center"> 
 
-##### [rentry](https://rentry.co/methodological) ‎‎ ‎‎  [atabook](https://mischaracterization.atabook.org)
+##### [rentry](https://rentry.co/girlbrat) ‎‎ ‎‎  
  <p align="center">
 drinking and ponytowning </p> 
 
