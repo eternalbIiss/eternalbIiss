@@ -7,7 +7,7 @@
 
  <p align="center"> 
 
-##### [carrd.](https://revengespiral.carrd.co/#)
+##### [rentry.](https://rentry.co/REVENGESPIRAL)
  <p align="center">
 i'm soo shadow irl hi guys</p> 
 
