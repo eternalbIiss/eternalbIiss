@@ -7,7 +7,7 @@
 
  <p align="center"> 
 
-##### currently editing links.
+##### [carrd.](https://revengespiral.carrd.co/#)
  <p align="center">
 i'm toootally shadow irl hi guys</p> 
 
