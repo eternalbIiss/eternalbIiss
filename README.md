@@ -7,7 +7,7 @@
 
  <p align="center"> 
 
-##### working on rentry.
+##### [carrd.](https://revengespiral.carrd.co/#)
  <p align="center">
 i'm soo shadow irl hi guys</p> 
 
