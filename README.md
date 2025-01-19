@@ -7,7 +7,7 @@
 
  <p align="center"> 
 
-##### [rentry.](https://rentry.co/REVENGESPIRAL)
+##### [spacehey.](https://spacehey.com/vagueabhorrence)
  <p align="center">
 shadow fictkin #heyy guys</p> 
 
