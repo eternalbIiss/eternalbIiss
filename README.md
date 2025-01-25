@@ -7,7 +7,7 @@
 
  <p align="center"> 
 
-#####   [strawpage](https://abhorrences.straw.page)
+#####   strawpage wip.
  <p align="center">
 yes i rebrand every 5 secs idgaf ,,^_^,,</p> 
 
