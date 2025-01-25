@@ -9,6 +9,6 @@
 
 #####   [strawpage](https://abhorrences.straw.page)
  <p align="center">
-hai party peopleeee ,,^_^,,</p> 
+yes i rebrand every 5 secs idgaf ,,^_^,,</p> 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31iaxwlbrvkrqjc3kowskrnxfiqi&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
