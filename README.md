@@ -7,7 +7,7 @@
 
  <p align="center"> 
 
-#####   strawpage wip.
+#####   [strawpage](https://shaketha.straw.page)
  <p align="center">
 i like funkadelix guys ,,^_^,,</p> 
 
