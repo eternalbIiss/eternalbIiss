@@ -9,10 +9,10 @@
 
 #####   [strawpage](https://shaketha.straw.page)ㅤㅤrentry wipㅤㅤspotif
  <p align="center">
-oh , no. can't you hold the
+you might hit harder ,
 
-magic staff anymore ?
+but i'm still faster .
 
-xerces.</p> 
+ne zha *</p> 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31iaxwlbrvkrqjc3kowskrnxfiqi&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
