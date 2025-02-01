@@ -7,8 +7,10 @@
 
  <p align="center"> 
 
-#####   [strawpage](https://shaketha.straw.page)
+#####   [strawpage](https://shaketha.straw.page)ㅤㅤrentry wipㅤㅤspotif
  <p align="center">
-waves nonchalantly ,,^_^,,</p> 
+universe surrounds, when you're ready
+
+xerces.</p> 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31iaxwlbrvkrqjc3kowskrnxfiqi&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
