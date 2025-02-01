@@ -9,7 +9,9 @@
 
 #####   [strawpage](https://shaketha.straw.page)ㅤㅤrentry wipㅤㅤspotif
  <p align="center">
-universe surrounds, when you're ready
+oh , no. can't you hold the
+
+magic staff anymore ?
 
 xerces.</p> 
 
