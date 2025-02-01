@@ -12,7 +12,7 @@
 
  <p align="center"> 
 
-#####   [strawpage](https://shaketha.straw.page)ㅤㅤrentry wipㅤㅤspotif
+#####   strawpageㅤㅤrentryㅤㅤspotif
  <p align="center">
 you might hit harder ,
 
