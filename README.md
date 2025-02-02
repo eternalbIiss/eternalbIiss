@@ -8,7 +8,7 @@
 
  <p align="center"> 
 
-#####   strawpageㅤㅤᵒʳㅤㅤrentry
+#####   strawpageㅤㅤᵒʳㅤㅤ[rentry](https://rentry.co/sixkiss)
  <p align="center">
 𓂅⠀⠀ so⠀⠀⠀⠀⠀⠀you⠀⠀⠀⠀⠀⠀can
 
