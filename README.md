@@ -8,7 +8,7 @@
 
  <p align="center"> 
 
-#####   strawpageㅤㅤᵒʳㅤㅤ[rentry](https://rentry.co/sixkiss)
+#####   [strawpage](https://sixkiss.straw.page/)ㅤㅤᵒʳㅤㅤ[rentry](https://rentry.co/sixkiss)
  <p align="center">
 𓂅⠀⠀ so⠀⠀⠀⠀⠀⠀you⠀⠀⠀⠀⠀⠀can
 
