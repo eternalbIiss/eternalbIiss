@@ -10,11 +10,11 @@
 
 #####   [strawpage](https://sixkiss.straw.page/)ㅤㅤᵒʳㅤㅤ[rentry](https://rentry.co/doIIcure)
  <p align="center">
-𓂅⠀⠀ so⠀⠀⠀⠀⠀⠀you⠀⠀⠀⠀⠀⠀can
+𓂅⠀⠀ why⠀⠀⠀⠀⠀⠀can⠀⠀⠀⠀⠀⠀you
 
-make⠀⠀⠀⠀⠀⠀things ⠀⠀worse
+never⠀⠀⠀⠀⠀⠀let ⠀⠀me have
 
-for⠀⠀mk⠀⠀⠀⠀⠀⠀﹖</p> 
+the last⠀⠀word⠀⠀⠀⠀⠀⠀﹖</p> 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31iaxwlbrvkrqjc3kowskrnxfiqi&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
