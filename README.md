@@ -8,7 +8,7 @@
 
  <p align="center"> 
 
-#####   [strawpage](https://sixkiss.straw.page/)ㅤㅤᵒʳㅤㅤ[rentry](https://rentry.co/doIIcure)
+#####   [prns.cc](https://pronouns.cc/@sixkiss)ㅤㅤᵒʳㅤㅤ[rentry](https://rentry.co/doIIcure)
  <p align="center">
 𓂅⠀⠀ why⠀⠀⠀⠀⠀⠀can⠀⠀⠀⠀⠀⠀you
 
