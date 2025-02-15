@@ -8,7 +8,7 @@
 
  <p align="center"> 
 
-#####   [prns.cc](https://pronouns.cc/@sixkiss)ㅤㅤᵒʳㅤㅤ[rentry](https://rentry.co/doIIcure)
+#####   [prns.cc](https://pronouns.cc/@sixkiss)
  <p align="center">
 𓂅⠀⠀ so⠀⠀⠀⠀⠀⠀you⠀⠀⠀⠀⠀⠀can
 
