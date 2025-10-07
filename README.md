@@ -8,7 +8,7 @@
 
  <p align="center"> 
 
-#####   [rentry](https://rentry.co/it2017_)
+#####   [rentry](https://rentry.co/it2017_) ‎ ‎ ‎ ‎ ‎ [prns.cc](https://pronouns.cc/@hargrove)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31iaxwlbrvkrqjc3kowskrnxfiqi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31iaxwlbrvkrqjc3kowskrnxfiqi&redirect=true)
 
